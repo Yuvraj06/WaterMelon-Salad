@@ -1,0 +1,1 @@
+A quick serving of a refreshing salad with hydrating ingredients. Watermelon cubes, cucumber, tomatoes, lettuce and bell peppers drizzled with a light dressing.
